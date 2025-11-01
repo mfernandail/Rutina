@@ -11,7 +11,6 @@
 - 1 cda mantequilla de maní en polvo reconstituida con agua
 - 1 cdta psyllium husk o semillas de chía
 - 2–3 cdas de leche de almendras o agua
-- Stevia o alulosa al gusto
 - _Opcional:_ canela o cacao amargo
 
 **Preparación:**
@@ -23,6 +22,24 @@
 
 > 💡 **Porción ideal:** 2 bolitas como snack.
 
+## A. 2.Bolitas de avena, proteína y mantequilla de maní en polvo
+
+**Ingredientes:**
+
+- ½ taza de avena integral
+- 1 scoop de proteína (vainilla o chocolate)
+- 1 cda mantequilla de maní en polvo reconstituida con agua
+- 2–3 cdas de leche de almendras o agua
+- Opcional: canela o cacao amargo
+
+**Preparación:**
+
+1. Mezcla todo hasta formar una masa.
+2. Haz bolitas del tamaño de una nuez y refrigera 1 hora.
+
+👉 Duran 5 días refrigeradas.
+👉 Porción: 2 bolitas por snack.
+
 ---
 
 ## 🍪 B. Galletas de avena y proteína
@@ -33,7 +50,7 @@
 - 1 scoop de proteína
 - 1 huevo o 1 clara + 1 cda de yogur natural
 - 1 cda de aceite de oliva o coco
-- Stevia/alulosa + esencia de vainilla
+- esencia de vainilla
 - _Opcional:_ trocitos de nuez o chips de cacao amargo
 
 **Preparación:**
